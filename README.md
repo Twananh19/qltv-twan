@@ -1,4 +1,11 @@
+# Giowis thieeju
 ỨNG DỤNG QUẢN LÝ THƯ VIỆN
+
+🐻‍❄️Tuaans Anh
+©️ 2024 Version 1.0.0
+# Sow do khoi
+
+# So do thuat toan
 
 # chức năng
 
